@@ -1,0 +1,2 @@
+# MDDMUz
+Mening birinchi ishim !
